@@ -1,0 +1,2 @@
+# GITB-GLOBAL
+GLOBAL IT BUSINESS 학과 글로벌홈페이지
